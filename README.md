@@ -17,7 +17,7 @@
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS PROBLEMAS
 
 Capitulo 14
-
+![](Img/1,3,5,7.PNG)
 
 ![](Img/1.1.png)
 
