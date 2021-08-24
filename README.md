@@ -39,19 +39,19 @@ Capitulo 14
 
 Capitulo 15
 
-![](Img/1.png)
+![](Img/1.jpg)
 
-![](Img/4.png)
+![](Img/4.jpg)
 
-![](Img/6.png)
+![](Img/6.jpg)
 
-![](Img/8.png)
+![](Img/8.jpg)
 
-![](Img/10.png)
+![](Img/10.jpg)
 
-![](Img/12.png)
+![](Img/12.jpg)
 
-![](Img/14.png)
+![](Img/14.jpg)
 
 
 4. VDEO:
