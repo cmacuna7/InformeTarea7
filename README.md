@@ -15,6 +15,14 @@
 
 Capitulo 14
 
+![](Img/1,3,5,7.png)
+
+![](Img/9,11.png)
+
+![](Img/13,15.png)
+
+![](Img/17.png)
+
 
 ![](Img/1.1.png)
 
