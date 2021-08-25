@@ -58,7 +58,9 @@ Capitulo 15
 
 ![](Img/14.2.jpg)
 
-![](Img/14.3.jpg)
+![](Img/14.13.jpg)
+
+![](Img/14.14.jpg)
 
 ![](Img/14.4.jpg)
 
