@@ -54,6 +54,29 @@ Capitulo 15
 
 ![](Img/14.jpg)
 
+![](Img/14.1.jpg)
+
+![](Img/14.2.jpg)
+
+![](Img/14.3.jpg)
+
+![](Img/14.4.jpg)
+
+![](Img/14.5.jpg)
+
+![](Img/14.6.jpg)
+
+![](Img/14.7.jpg)
+
+![](Img/14.8.jpg)
+
+![](Img/14.9.jpg)
+
+![](Img/14.10.jpg)
+
+![](Img/14.11.jpg)
+
+![](Img/14.12.jpg)
 
 4. VDEO:
 
